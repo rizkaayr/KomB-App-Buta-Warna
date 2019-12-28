@@ -1,1 +1,0 @@
-# KomB-App-Buta-Warna
